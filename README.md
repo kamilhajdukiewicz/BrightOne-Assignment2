@@ -1,1 +1,0 @@
-# BrightOne-Assignment2
